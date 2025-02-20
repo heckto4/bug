@@ -1,4 +1,4 @@
-# Hackear Instagram da Pessoa #jfc8t (#jfc8t)
+# Hackear Instagram senha esquecida
 
 Atualizado a 5 minutos :
 Bem-vindo ao guia mais completo para hackear Instagram e com tecnologia de ponta! Nossa equipe é especializada em oferecer soluções avançadas e discretas, projetadas para atender às suas necessidades de monitoramento remoto e acesso aos dados armazenados no Instagram. 📲✨
